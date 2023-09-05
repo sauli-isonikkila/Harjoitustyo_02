@@ -1,2 +1,0 @@
-# Harjoitustyo_02
- 
